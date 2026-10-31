@@ -7,7 +7,7 @@ yaaaaaay okwip
 
   13 + 
 
-   25+ dniuf
+   ### $\color{#9f88aa}{\textsf{25+ dniuf}}$
 
 
 
