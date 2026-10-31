@@ -5,7 +5,7 @@ yaaaaaay okwip
 
 
 
-  13 + 
+  $\color{#cd91c2}{\textsf{13+}}$
 
    ### $\color{#9f88aa}{\textsf{25+ dniuf}}$
 
