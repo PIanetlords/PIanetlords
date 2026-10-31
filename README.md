@@ -1,5 +1,5 @@
 yaaaaaay okwip 
-![image alt](https://github.com/PIanetlords/PIanetlords/blob/main/Magma.jpg?raw=true)<img size>
+![image alt](https://github.com/PIanetlords/PIanetlords/blob/main/Magma.jpg?raw=true)<img size="600">
 . 
 
 
