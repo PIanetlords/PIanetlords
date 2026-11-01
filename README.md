@@ -1,4 +1,4 @@
-## ### $\color{#9f88aa}{\textsf{sensitive so iwc pls !}}$
+## $\color{#9f88aa}{\textsf{sensitive so iwc pls !}}$
 
 
 ╰ [atabook ˃ 𖥦 ˂  . ](https://doI9hin.atabook.org/) . [strawpage ˃ 𖥦 ˂  . ](https://melloyay.straw.page)
