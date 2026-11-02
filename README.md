@@ -9,5 +9,5 @@
 
 ![image alt](https://github.com/PIanetlords/PIanetlords/blob/main/Magma.jpg?raw=true)
 
-## $\color{#9f88aa}{\textsf{bubble guppy trio pfp m/w}}$ [neiify ! .](https://github.com/neiify)  $\color{#9f88aa}{\textsf{and}} [mime ! .](https://github.com/The0BaIdthebird) $\color{#9f88aa}{\textsf{happy happy hi oomfs ! also other oomfs section will be soon ok ? ok}}$
+## $\color{#9f88aa}{\textsf{bubble guppy trio pfp m/w}}$ [neiify ! .](https://github.com/neiify)  $\color{#9f88aa}{\textsf{and}}$ [mime ! .](https://github.com/The0BaIdthebird) $\color{#9f88aa}{\textsf{happy happy hi oomfs ! also other oomfs section will be soon ok ? ok}}$
 ![image alt](https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/ac_%20kitkitkitk1t%20on%20twt_x%20%20_%20%20bubble%20guppy%20trio%20spokeishere%20planetlord%20mapicc.jpg?raw=true)
