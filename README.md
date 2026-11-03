@@ -4,7 +4,7 @@
 ### ╰ [atabook ˃ 𖥦 ˂  . ](https://doI9hin.atabook.org/) . [strawpage ˃ 𖥦 ˂  . ](https://melloyay.straw.page) 
 
 ![image alt](https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/Bubble%20Guppy%20trio%20(2).jpg?raw=true)
- [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=${\textsf{\color{#F5D9D7} Every}}$ ${\textsf{\color{#F5E0C4} other}}$ ${\textsf{\color{#F8EAD5} day}}$ ${\textsf{\color{#E5F4D9} I'm}}$ ${\textsf{\color{#E4E1EB} wondering}}$ ${\textsf{\color{#F4F3EA} (ᵕ•ᴗ•)}}$)](https://git.io/typing-svg) 
+
  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Together+in+death+ooh+woah;wont+you+die+tonight+for+love?..;baby+join+me+in+DEATH,)](https://git.io/typing-svg)
 ## $\color{#c67dbd}{\textsf{ c+h enc ! .  }}$ 
 
