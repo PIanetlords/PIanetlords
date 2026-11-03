@@ -5,7 +5,7 @@
 
 ![image alt](https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/Bubble%20Guppy%20trio%20(2).jpg?raw=true)
 
- [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=%60Together+in+death+ooh+woah;wont+you+die+tonight+for+love?..;baby+join+me+in+DEATH,)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Together+in+death+ooh+woah;wont+you+die+tonight+for+love?..;baby+join+me+in+DEATH,)](https://git.io/typing-svg)
 ## $\color{#c67dbd}{\textsf{ c+h enc ! .  }}$ 
 
 ![image alt](https://github.com/PIanetlords/PIanetlords/blob/main/Magma.jpg?raw=true)
