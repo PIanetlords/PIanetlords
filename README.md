@@ -4,7 +4,7 @@
 ### ╰ [atabook ˃ 𖥦 ˂  . ](https://doI9hin.atabook.org/) . [strawpage ˃ 𖥦 ˂  . ](https://melloyay.straw.page) 
 
 ![image alt](https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/Bubble%20Guppy%20trio%20(2).jpg?raw=true)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)
 ## $\color{#c67dbd}{\textsf{ c+h enc ! .  }}$ 
 
 ![image alt](https://github.com/PIanetlords/PIanetlords/blob/main/Magma.jpg?raw=true)
