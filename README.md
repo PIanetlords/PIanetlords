@@ -1,7 +1,7 @@
 
 ![gif alt](https://github.com/PIanetlords/planetlord/blob/main/%D8%AA%D9%86%D8%B2%D9%8A%D9%84%20(1).gif?raw=true) 
 
-<img src="https://github.com/PIanetlords/planetlord/blob/main/Planetlord_C_-removebg-preview.png?raw=true" width="400" height="360">
+<img src="https://github.com/PIanetlords/planetlord/blob/main/Planetlord_C_-removebg-preview.png?raw=true" width="400" height="400">
 
 ![image alt](https://github.com/PIanetlords/planetlord/blob/main/Planetlord_C_-removebg-preview.png?raw=true)
  $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
