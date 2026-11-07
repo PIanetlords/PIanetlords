@@ -6,7 +6,7 @@
  <p>
   
   $\color{#f1d1e2}{\textsf{my}}$ $\color{#ffc0fe}{\textsf{best}}$ $\color{#e0c0ff}{\textsf{oomf :}}$ [cinnamon](https://github.com/CinnamonSwirlHaze) [jin](https://github.com/HihiitsjinX) [hua](https://github.com/Hu4Hu4Hu4) [gee](https://github.com/bxlletsandbats) [lucky](https://github.com/Luckybirdyx)  
-my oomfs: [yeshie](https://github.com/yeshielulz)  
+$\color{#f1d1e2}{\textsf{my}}$ $\color{#f696ea}{\textsf{oomfs !:}}$ [yeshie](https://github.com/yeshielulz)  
  </p>
  </details>
 
