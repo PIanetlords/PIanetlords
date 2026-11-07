@@ -30,4 +30,4 @@ $\color{#f1d1e2}{\textsf{my}}$ $\color{#f696ea}{\textsf{oomfs !:}}$ [yeshie](htt
 
 ![gif alt](https://imagepaste.org/v/3a3kdamc.gif)
 
-╰ [atabook ˃ 𖥦 ˂  . ](https://doI9hin.atabook.org/) . [strawpage ˃ 𖥦 ˂  . ](https://melloyay.straw.page) 
+ [atabook](https://doI9hin.atabook.org/) . [strawpage](https://melloyay.straw.page) 
