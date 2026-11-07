@@ -3,7 +3,7 @@
 
 <img src="https://github.com/PIanetlords/planetlord/blob/main/Planetlord_C_-removebg-preview.png?raw=true" width="340" height="430">
 
-![image alt](https://github.com/PIanetlords/planetlord/blob/main/Planetlord_C_-removebg-preview.png?raw=true)
+
  $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
 
 $\color{#e0c0ff}{\textsf{c+h}}$  $\color{#ffc0fe}{\textsf{enc !}}$
