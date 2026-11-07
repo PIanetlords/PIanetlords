@@ -1,6 +1,6 @@
 
 
-<img src="https://github.com/https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/___________%F0%93%8F%BC%D7%81___________art_by_uraearf_on_twt____bubble_guppy_trio_planetlord_spokeishere_mapicc___%F0%93%88%92-removebg-preview.png?raw=true" width="400" height="300"> 
+<img src="https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/___________%F0%93%8F%BC%D7%81___________art_by_uraearf_on_twt____bubble_guppy_trio_planetlord_spokeishere_mapicc___%F0%93%88%92-removebg-preview.png?raw=true" width="400" height="300"> 
 
 <details><summary>oomfs !</summary>
  <p>
