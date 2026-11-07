@@ -4,6 +4,8 @@
 
 $\color{#e0c0ff}{\textsf{c+h}}$  $\color{#ffc0fe}{\textsf{enc !}}$
 
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=oh++but+i+did+the+same;oh+baby+i+did+the+same;the+way+you+moving+makes+me+step+out+of+line>.<)](https://git.io/typing-svg)
+
 <details><summary> $\color{#ffd1fd}{\textsf{oomfs!}}$ </summary>
  <p>
 
