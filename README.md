@@ -5,7 +5,8 @@
 <details><summary>oomfs !</summary>
  <p>
   my best best oomf: [cinnamonon](https://github.com/CinnamonSwirlHaze) [jin](https://github.com/HihiitsjinX) [hua](https://github.com/Hu4Hu4Hu4) [gee](https://github.com/bxlletsandbats) {lucky}(https://github.com/Luckybirdyx) 
-  my oom
+
+[lucky](https://github.com/Luckybirdyx)  
  </p>
  </details>
 
