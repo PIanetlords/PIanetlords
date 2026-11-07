@@ -3,6 +3,7 @@
 </p>
 </details>
 $\color{#ffd1fd}{\textsf{nothing}}$ $\color{#efa6f3}{\textsf{yet .}}$ $\color{#f696ea}{\textsf{soon}}$ $\color{#e0c0ff}{\textsf{maybe . . .}}$ 
+
  </p>
  </details>
 <img src="https://github.com/PIanetlords/planetlord/blob/main/Planetlord_C_-removebg-preview.png?raw=true" width="250" height="330">
