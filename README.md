@@ -15,4 +15,4 @@
 ![image alt](https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/ac_%20kitkitkitk1t%20on%20twt_x%20%20_%20%20bubble%20guppy%20trio%20spokeishere%20planetlord%20mapicc.jpg?raw=true)
 
 
-[gif alt](https://imagepaste.org/v/3a3kdamc.gif)
+![gif alt](https://imagepaste.org/v/3a3kdamc.gif)
