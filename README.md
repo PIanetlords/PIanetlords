@@ -1,5 +1,5 @@
 
-<img src="https://https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/Planetlord_C_-removebg-preview.png?raw=true" width="400" height="300">
+<img src="https://https://https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/Planetlord_C_-removebg-preview.png?raw=true" width="400" height="300">
 
 
  $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
