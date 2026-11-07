@@ -1,5 +1,4 @@
-
-<img src="https://https://github.com/PIanetlords/planetlord/blob/main/mu%20(@gravefed)%20on%20X.jpg?raw=true" width="250" height="250">
+<img src="https://https://github.com/PIanetlords/planetlord/blob/main/%E2%80%A2~planetlord%20&%20parrotX2~%E2%80%A2%20Paralysis%20Duo.jpg?raw=true" width="400" height="300">
 
 
  $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
