@@ -23,6 +23,7 @@ $\color{#e0c0ff}{\textsf{c+h}}$  $\color{#ffc0fe}{\textsf{enc !}}$
    
   $\color{#f1d1e2}{\textsf{my}}$ $\color{#ffc0fe}{\textsf{best}}$ $\color{#e0c0ff}{\textsf{oomf :}}$ [cinnamon](https://github.com/CinnamonSwirlHaze) [jin](https://github.com/HihiitsjinX) [hua](https://github.com/Hu4Hu4Hu4) [gee](https://github.com/bxlletsandbats) [lucky](https://github.com/Luckybirdyx)  
 $\color{#f1d1e2}{\textsf{my}}$ $\color{#f696ea}{\textsf{oomfs !:}}$ [yeshie](https://github.com/yeshielulz)  [wafurz](https://github.com/wafurz) [micah](https://github.com/petrichorpuupy) [fei](https://github.com/100bottlesofglue) [awze](https://github.com/ChemicalShot) [twice](https://github.com/SacrificalDagger) [Wifies](https://github.com/WifiesItsAllYours)
+
 $\color{#ff97e8}{\textsf{pple i}}$ $\color{#e0c0ff}{\textsf{want them}}$  $\color{#efa6f3}{\textsf{to int}}$ $\color{#f190c4}{\textsf{when i}}$  $\color{#ffd1fd}{\textsf{have a dni only:}}$ [cinnamon](https://github.com/CinnamonSwirlHaze) [lucky](https://github.com/Luckybirdyx) [gee](https://github.com/bxlletsandbats)
  </p>
  </details>
