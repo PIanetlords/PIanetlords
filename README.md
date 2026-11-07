@@ -5,7 +5,7 @@
 <details><summary> $\color{#ffd1fd}{\textsf{oomfs!}}$ </summary>
  <p>
 
-   $\color{#f1d1e2}{\textsf{my}}$  $\color{#efa6f3}{\textsf{bubble}}$  $\color{#ff97e8}{\textsf{guppy}}$  $\color{#f986ff}{\textsf{trio}}$  $\color{#f190c4}{\textsf{^_^ :}}$  [neiify](https://github.com/neiify)  [mime](https://github.com/The0BaIdTheBird) 
+   $\color{#f1d1e2}{\textsf{my}}$  $\color{#efa6f3}{\textsf{bubble}}$  $\color{#ff97e8}{\textsf{guppy}}$  $\color{#f986ff}{\textsf{trio}}$  $\color{#f190c4}{\textsf{:D :}}$  [neiify](https://github.com/neiify)  [mime](https://github.com/The0BaIdTheBird) 
   $\color{#f1d1e2}{\textsf{my}}$ $\color{#ffc0fe}{\textsf{best}}$ $\color{#e0c0ff}{\textsf{oomf :}}$ [cinnamon](https://github.com/CinnamonSwirlHaze) [jin](https://github.com/HihiitsjinX) [hua](https://github.com/Hu4Hu4Hu4) [gee](https://github.com/bxlletsandbats) [lucky](https://github.com/Luckybirdyx)  
 $\color{#f1d1e2}{\textsf{my}}$ $\color{#f696ea}{\textsf{oomfs !:}}$ [yeshie](https://github.com/yeshielulz)  [wafurz](https://github.com/wafurz) [micah](https://github.com/petrichorpuupy) [fei](https://github.com/100bottlesofglue) [awze](https://github.com/ChemicalShot) [twice](https://github.com/SacrificalDagger) [Wifies](https://github.com/WifiesItsAllYours)
  </p>
