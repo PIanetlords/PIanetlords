@@ -1,6 +1,6 @@
 
 
-<img src="https://[github.com/PIanetlords/mapicc-my-chestplate/blob/main/%E3%85%A4%20planetlord%20%E3%85%A4%E3%85%A4%E2%97%A1%E2%97%A1%E3%85%A4%E3%85%A4pfp%E3%85%A4%E3%85%A4%F0%9D%9C%97%E3%85%A4mcyt%E3%85%A4%F0%9D%9C%9A%20(1).jpg?raw=true](https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/Planetlord_C_-removebg-preview.png?raw=true)" width="250" height="250"> $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
+<img src="https://[github.com/PIanetlords/mapicc-my-chestplate/blob/main/%E3%85%A4%20planetlord%20%E3%85%A4%E3%85%A4%E2%97%A1%E2%97%A1%E3%85%A4%E3%85%A4pfp%E3%85%A4%E3%85%A4%F0%9D%9C%97%E3%85%A4mcyt%E3%85%A4%F0%9D%9C%9A%20(1).jpg?raw=true](https://github.com/PIanetlords/mapicc-my-chestplate/blob/main/Planetlord_C_-removebg-preview.png?raw=true" width="250" height="250"> $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
 
 $\color{#e0c0ff}{\textsf{c+h}}$  $\color{#ffc0fe}{\textsf{enc !}}$
 
