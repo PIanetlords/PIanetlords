@@ -1,5 +1,5 @@
 
-<img src="https://https://https://github.com/PIanetlords/planetlord/blob/main/Planetlord%20C_.jpg?raw=true" width="400" height="300">
+<img src="https://https://github.com/PIanetlords/planetlord/blob/main/mu%20(@gravefed)%20on%20X.jpg?raw=true" width="250" height="250">
 
 
  $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
