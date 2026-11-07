@@ -3,9 +3,9 @@
 
 <img src="https://github.com/PIanetlords/planetlord/blob/main/Planetlord_C_-removebg-preview.png?raw=true" width="340" height="430">
 <details><summary> $\color{#ffd1fd}{\textsf{pt rewards !}}$ </summary>
+ 
  <p>
 $\color{#ffd1fd}{\textsf{nothing}}$ $\color{#efa6f3}{\textsf{yet .}}$ $\color{#f696ea}{\textsf{soon}}$ $\color{#e0c0ff}{\textsf{maybe . . .}}$ 
-
 
 
  $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
