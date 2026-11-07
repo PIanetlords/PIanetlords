@@ -1,5 +1,6 @@
 
-![gif alt](https://github.com/PIanetlords/planetlord/blob/main/%D8%AA%D9%86%D8%B2%D9%8A%D9%84%20(1).gif?raw=true) <details><summary> $\color{#ffd1fd}{\textsf{pt rewards !}}$</p>
+![gif alt](https://github.com/PIanetlords/planetlord/blob/main/%D8%AA%D9%86%D8%B2%D9%8A%D9%84%20(1).gif?raw=true)
+<details><summary> $\color{#ffd1fd}{\textsf{pt rewards !}}$</p>
 </details>
 
 
