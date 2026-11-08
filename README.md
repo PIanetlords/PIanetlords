@@ -29,7 +29,6 @@ $\color{#ff97e8}{\textsf{pple i}}$ $\color{#e0c0ff}{\textsf{want them}}$  $\colo
  </p>
  </details>
 
-https://github.com/100bottlesofglue/100bottlesofglue.git
 
 ![gif alt](https://imagepaste.org/v/3a3kdamc.gif)
 
