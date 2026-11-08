@@ -2,8 +2,8 @@
 ![gif alt](https://github.com/PIanetlords/planetlord/blob/main/%D8%AA%D9%86%D8%B2%D9%8A%D9%84%20(1).gif?raw=true)
 <details><summary> $\color{#ffd1fd}{\textsf{pt rewards !}}$ </summary>
 
-
-$\color{#ffd1fd}{\textsf{nothing}}$ $\color{#efa6f3}{\textsf{yet .}}$ $\color{#f696ea}{\textsf{soon}}$ $\color{#e0c0ff}{\textsf{maybe . . .}}$ 
+[pt-of-forsaken](https://github.cp,/pt-of-forsaken)'s $\color{#f1d1e2}{\textsf{mello .}}$ $\color{#e3c1e9}{\textsf{brighteyes }}$ !
+$\color{#ffd1fd}{\textsf{nothing}}$ $\color{#efa6f3}{\textsf{more yet .}}$ $\color{#f696ea}{\textsf{soon}}$ $\color{#e0c0ff}{\textsf{maybe . . .}}$ 
 
  </p>
  </details>
