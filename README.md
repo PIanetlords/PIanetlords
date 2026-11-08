@@ -13,7 +13,7 @@ $\color{#ffd1fd}{\textsf{nothing}}$ $\color{#efa6f3}{\textsf{more yet .}}$ $\col
 
 
 
-$\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery}}$ 
+$\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery "}}$ 
 $\color{#e0c0ff}{\textsf{c+h}}$  $\color{#ffc0fe}{\textsf{enc !}}$
 
 
