@@ -4,7 +4,7 @@
 
 [pt-of-forsaken](https://github.com/pt-of-forsaken)$\color{#e3c1e9}{\textsf{'s}}$ $\color{#e3c1e9}{\textsf{brighteyes !}}$ 
 
-[the tempest](https://github.com/THE-TEMPEST)$\color{#ff97e8}{\textsf{'s}}$ $\color{#ffd1fd}{\textsf{brighteyes !}}$
+[the tempist](https://github.com/THE-TEMPIST)$\color{#ff97e8}{\textsf{'s}}$ $\color{#ffd1fd}{\textsf{brighteyes !}}$
 
 $\color{#ffd1fd}{\textsf{nothing}}$ $\color{#efa6f3}{\textsf{more yet .}}$ $\color{#f696ea}{\textsf{soon}}$ $\color{#e0c0ff}{\textsf{maybe . . .}}$ 
 
