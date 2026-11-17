@@ -8,7 +8,6 @@
 
 [pt-hall-of-fans](https://github.com/pt-hall-of-fans)$\color{#f986ff}{\textsf{'s}}$ $\color{#f1d1e2}{\textsf{planetlord}}$ $\color{#ff97e8}{\textsf{biggest}}$ $\color{#f190c4}{\textsf{fan !}}$ 
 
-$\color{#ffd1fd}{\textsf{nothing}}$ $\color{#efa6f3}{\textsf{more yet .}}$ $\color{#f696ea}{\textsf{soon}}$ $\color{#e0c0ff}{\textsf{maybe . . .}}$ 
 
  </p>
  </details>
