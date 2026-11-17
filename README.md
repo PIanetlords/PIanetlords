@@ -4,7 +4,7 @@
 
 [pt-of-forsaken](https://github.com/pt-of-forsaken)$\color{#e3c1e9}{\textsf{'s}}$ $\color{#e3c1e9}{\textsf{brighteyes !}}$ 
 
-[the tempist](https://github.com/THE-TEMPIST)$\color{#ff97e8}{\textsf{'s}}$ $\color{#ffd1fd}{\textsf{brighteyes !}}$hal
+[the tempist](https://github.com/THE-TEMPIST)$\color{#ff97e8}{\textsf{'s}}$ $\color{#ffd1fd}{\textsf{brighteyes !}}$
 
 [pt-hall-of-fans](https://github.com/pt-hall-of-fans)$\color{#f986ff}{\textsf{'s}}$ $\color{#f1d1e2}{\textsf{planetlord}}$ $\color{#ff97e8}{\textsf{biggest}}$ $\color{#f190c4}{\textsf{fan !}}$ 
 
