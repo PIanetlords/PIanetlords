@@ -8,6 +8,7 @@
 
 [pt-hall-of-fans](https://github.com/pt-hall-of-fans)$\color{#f986ff}{\textsf{'s}}$ $\color{#f1d1e2}{\textsf{planetlord}}$ $\color{#ff97e8}{\textsf{biggest}}$ $\color{#f190c4}{\textsf{fan !}}$ 
 
+[pt-friendships](https://github.com/pt-friendships) }}$ $\color{#f986ff}{\textsf{bubble}}% $\color{#f1d1e2}{\textsf{guppy trio}}$ $\color{#f190c4}{\textsf{with :D :}}$  [neiify](https://github.com/neiify) $\color{#ffc0fe}{\textsf{&}}$  [mime](https://github.com/The0BaIdTheBird) 
 
  </p>
  </details>
@@ -16,7 +17,7 @@
 
 
 
-$\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery "}}$ 
+$\color{#f1d1e2}{\textsf{mello .}}$ $\color{#f986ff}{\textsf{avery "}}%
 $\color{#e0c0ff}{\textsf{c+h}}$  $\color{#ffc0fe}{\textsf{enc !}}$
 
 
